@@ -1,1 +1,1 @@
-In my metamorphosis arc. [Something Stupid](https://www.youtube.com/watch?v=F8dKVbP1Nzo).
+[Something Stupid](https://www.youtube.com/watch?v=F8dKVbP1Nzo).
